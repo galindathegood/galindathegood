@@ -1,1 +1,1 @@
-now you can like add things and images and things and yeah :-3 for example i will drag and drop a photo to add it  -->  ![Untitled548_20251009112356](https://github.com/user-attachments/assets/08ea6007-6d54-4699-bf66-b46caa4bbe0a)
+
